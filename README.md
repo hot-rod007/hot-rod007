@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @hot-rod007
 - 👀 I’m interested in learning
-- 🌱 I’m currently learning acturial scince
+- 🌱 I’m currently learning acturial science
 - 💞️ I’m looking to collaborate on platforms in my field
 - 📫 How to reach me DM my email
 
